@@ -1,1 +1,1 @@
-# rikisabt
+ℋi there! about me : 𓏵 i'm a ℳinor󠀠󠀠󠀠󠀠󠀠󠁪݁ ݁ ⭒ i st𝒶n : ENHYPEN (u𝓁t!!) , XL𝒪V and T𝓦S ! ✦ feel fr𝓮𝓮 to come towards me, i'm bad at communication tho and my english is pretty bad but i try my best !
